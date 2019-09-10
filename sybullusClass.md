@@ -60,7 +60,7 @@ By the end of the course, you should have a good understanding of the following:
 
 ## Class Rules
 
-***Don't be a jerk.*** If you need to use the restroom, just use it. If you're late, come into the class quietly. Show your everyone around you respect and you'll be fine. Really, the only rule I have is you're not allowed to be a jerk.
+***Don't be a jerk and have the right attitude.*** If you need to use the restroom, just use it. If you're late, come into the class quietly. Show your everyone around you respect and you'll be fine. Really, the only rules I have are you're not allowed to be a jerk and that I expect you to have the right attitude during class and assignments! 
 
 Instances of you being a jerk will be punished harshly.
 
